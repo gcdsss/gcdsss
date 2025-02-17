@@ -1,4 +1,4 @@
-Just a junior developer, also a gamer.  
+python developer, also a gamer.  
 steam page: [Gui](https://steamcommunity.com/id/changdig "Gui")  
 <h2>ℹ️ &nbsp;Github Info</h2>
 	
